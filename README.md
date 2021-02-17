@@ -1,3 +1,3 @@
 # Adenauer-Worksheet
 
-David Guo
+DAVID GUO.
